@@ -1,1 +1,1 @@
-# [Brittany]'s Notes
+# Brittany's Notes
